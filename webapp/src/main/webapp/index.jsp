@@ -7,3 +7,9 @@
 
 
 		Hahahah herhh charlie Devops be niceooo just continue to learn charlie more vim kudos
+
+
+
+
+		charlie make you do wild kraaa i gotchu jack hahahahahahah
+		bvhjvbskjvsnsbvsbdv 

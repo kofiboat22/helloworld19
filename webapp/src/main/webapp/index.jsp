@@ -3,4 +3,4 @@
 
 Atsu Nyamadi is a bomboclat nigga for sure
 
-BUT will soon becpome a devops engineer
+BUT will soon become a devops engineer
